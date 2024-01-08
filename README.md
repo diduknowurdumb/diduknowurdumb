@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @diduknowurdumb
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on nothing for now
+- 📫 How to reach me u cant
